@@ -2,6 +2,20 @@
 
 I gonna start to submit papers that i've be reading,and the link that we get it.
 
+May 26
+
+[A Genomic Perspective on Hybridization and Speciation
+](https://www.researchgate.net/publication/292949924_A_Genomic_Perspective_on_Hybridization_and_Speciation)
+
+[Hypotheses to explain the origin of species in Amazonia
+](https://www.researchgate.net/publication/24014202_Hypotheses_to_explain_the_origin_of_species_in_Amazonia)
+
+[The genomic consequences of adaptive divergence and reproductive isolation between species of manakins
+](https://pubmed.ncbi.nlm.nih.gov/23441849/)
+
+[Hybridization and adaptive radiation
+](https://www.sciencedirect.com/science/article/abs/pii/S0169534704000047)
+
 April 15
 
 [A Survey of Birds Odorous or Unpalatable to Humans: Possible Indications of Chemical Defense
