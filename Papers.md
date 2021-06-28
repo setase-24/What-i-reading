@@ -2,6 +2,10 @@
 
 I gonna start to submit papers that i've be reading,and the link that we get it.
 
+June 28
+
+[Morphological variability and taxonomy of the Blue winged Parrotlet Forpus xanthopterygius (Psittacidae)](https://www.researchgate.net/publication/277304595_Morphological_variability_and_taxonomy_of_the_Bluewinged_Parrotlet_Forpus_xanthopterygius_Psittacidae)
+
 May 26
 
 [A Genomic Perspective on Hybridization and Speciation
