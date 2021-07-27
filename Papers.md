@@ -2,6 +2,11 @@
 
 I gonna start to submit papers that i've be reading,and the link that we get it.
 
+July 27
+
+[13. Evolutionary Traits that Enable Scleractinian Corals to Survive Mass Extinction Events
+](https://www.researchgate.net/publication/339658228_Evolutionary_Traits_that_Enable_Scleractinian_Corals_to_Survive_Mass_Extinction_Events)
+
 June 28
 
 [12. Morphological variability and taxonomy of the Blue winged Parrotlet Forpus xanthopterygius (Psittacidae)](https://www.researchgate.net/publication/277304595_Morphological_variability_and_taxonomy_of_the_Bluewinged_Parrotlet_Forpus_xanthopterygius_Psittacidae)
